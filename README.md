@@ -1,0 +1,3 @@
+- I make Random Projects
+- Send me a few ideas if you have some, I have been coding in python since 11/18/2022
+- hehe
